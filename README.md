@@ -1,2 +1,1 @@
-Hi! I'm Alex, Currently enrolled in the Data Analytics bootcamp at Ironhack. 
-I am looking forward to learn and develop my skills, and land a job as a junior analyst in a company where I can grow and be involved in exciting projects.
+Data professional Interested in creating services that improve people’s lives. While I truly enjoy dissecting problems in detail and being thorough in the work, I’m driven to learn, and mentor others. Former operations manager in the food production industry with 5 years of experience leading teams and collaborating closely to deliver quality results.
